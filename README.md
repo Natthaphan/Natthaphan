@@ -1,4 +1,4 @@
-![alt text](tumblr_lx8xw2KfGA1qg6rkio1_500.gif)
+![alt text](https://steamuserimages-a.akamaihd.net/ugc/701786134312181339/0603928D2211B58D51A21774067A3045A2A1F849/)
 
 <!--
 **Natthaphan/Natthaphan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
